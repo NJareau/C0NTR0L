@@ -8,4 +8,3 @@ A high quality unblocked game site made completely on google sites with tons of 
 
 We also added APKs and more in 1.2!
 
-
